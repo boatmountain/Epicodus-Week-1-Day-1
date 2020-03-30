@@ -1,0 +1,1 @@
+I enjoyed my day.  I had dumplings, fish, and a yam today.  My favorite travel destination is Oahu, Hawaii.
